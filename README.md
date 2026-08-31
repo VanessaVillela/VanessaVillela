@@ -2,14 +2,15 @@
 
 🧳 Estou em  transição de Carreira.
 
-💚 Sou apaixonada por Design, Arquitetura e Técnologia e busco agregar os três.
+💚 Sou apaixonada por  Técnologia, Design e Arquitetura e busco agregar os três.
 
 
 Formada em técnico de Multimídia (Senac), Arquitetura e Urbanismo (UNG) com especialização em
-Arquitetura de interiores (FAMEESP), atualmente estou estudando UX/UI e Front End.
+Arquitetura de interiores (FAMEESP), estudando e me atualizando sempre na área de tecnologia, abri minha empresa conde 
+trabalho com Desenvovlimento Web, Design, Branding e Marketing.
 
-Possuo experiência com criação de websites, suporte técnico, treinamentos de softwares voltados a arquitetura, 
-design grafico, criação de materiais digitais, desenhos técnicos, projetos arquitetônicos, regularização de imóveis
+Possuo experiência com criação de websites, suporte técnico, treinamentos de softwares, 
+design grafico, criação de materiais digitais, desenhos técnicos, projetos arquitetônicos, 
  e vendas. 
 
 Acredito que tudo que conquistamos é com muito trabalho duro, persistência, honestidade e que cada momento bom 
